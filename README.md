@@ -2,6 +2,8 @@
 
 Are you a Fortnite fan looking to up your game without breaking the bank? Well, you’re in luck! Epic Games is offering an exclusive opportunity to redeem **13,500 V-Bucks** for free in 2024. This is your chance to grab Halloween skins, outfits, and emotes to show off in the game. To make sure you don’t miss out, let’s dive into everything you need to know about V-Bucks, how to redeem your code, and some frequently asked questions!
 
+## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+
 ## What Are V-Bucks?
 
 V-Bucks, short for Vinderbucks, are the in-game currency in Fortnite. Players use V-Bucks to purchase cosmetic items such as skins, emotes, gliders, and battle passes. With new content dropping frequently, accumulating V-Bucks can significantly enhance your Fortnite experience.
