@@ -2,7 +2,7 @@
 
 Are you a Fortnite fan looking to up your game without breaking the bank? Well, you’re in luck! Epic Games is offering an exclusive opportunity to redeem **13,500 V-Bucks** for free in 2024. This is your chance to grab Halloween skins, outfits, and emotes to show off in the game. To make sure you don’t miss out, let’s dive into everything you need to know about V-Bucks, how to redeem your code, and some frequently asked questions!
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What Are V-Bucks?
 
